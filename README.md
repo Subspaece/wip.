@@ -6,6 +6,11 @@
 </p>
 
 
+<sup> $\color{#83B5F7}{\textsf{Clearing this up first, What is a Fictive alter, According to "HealthyPlace.com"}}$
+<sup> $\color{#83B5F7}{\textsf{"Introjects are alters that are based off outside people or characters. Fictional introjects specifically are based off of fictional characters. These characters can be from television shows, movies, books, fantasy, and other forms of fiction."}}$
+
+
+
 > # $\color{#83B5F7}{\textsf{Itrapped .}}$
 > # $\color{#83B5F7}{\textsf{ONLY He / Him, you WILL be blocked .}}$
 
