@@ -7,7 +7,7 @@
 
 
 > # $\color{#83B5F7}{\textsf{Itrapped .}}$
-> ONLY He / Him, you WILL be blocked.
+> # $\color{#83B5F7}{\textsf{ONLY He / Him, you WILL be blocked .}}$
  
 
 
