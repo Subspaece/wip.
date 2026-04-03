@@ -6,7 +6,7 @@
 </p>
 
 
-> # $\color{#83B5F7}{\textsf{Wip guys, i got lazy : ( }}$
+> # $\color{#83B5F7}{\textsf{Itrapped .}}$
 
 
 
