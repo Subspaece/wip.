@@ -12,7 +12,7 @@ $\color{#83B5F7}{\textsf{fantasy, and other forms of fiction."}}$
 
 
 
-> # $\color{#83B5F7}{\textsf{Itrapped .}}$
+> # $\color{#83B5F7}{\textsf{Itrapped . Fictive}}$
 > # $\color{#83B5F7}{\textsf{ONLY He / Him, you WILL be blocked .}}$
 
 > ### $\color{#83B5F7}{\textsf{Since i sound "dry", i am also EXTREMELY easy to irritate. The smallest thing you do can and will annoy me GREATLY.}}$
