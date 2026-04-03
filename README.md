@@ -1,5 +1,7 @@
-### <img width="640" height="640" alt="tumblr_931bb268f924bb628fcfafa7bab99009_74e1096e_640" src="https://github.com/user-attachments/assets/43f5cce9-bd2a-4530-90dd-27178b1a5083" />
+# <img width="1280" height="422" alt="tumblr_62fccd1de9ef610e5ec4b517d089736e_5da59c55_1280" src="https://github.com/user-attachments/assets/a9289ec4-71a3-42d1-85e6-9d2db6f18a95" />
+
 
 -he better like this spoiled fuck -seb
 
-### <img width="640" height="99" alt="tumblr_931bb268f924bb628fcfafa7bab99009_74e1096e_640" src="https://github.com/user-attachments/assets/43f5cce9-bd2a-4530-90dd-27178b1a5083" />
+# <img width="1280" height="460" alt="tumblr_a5898ea653877fc11bfb1aaed674acf6_17d195c5_1280" src="https://github.com/user-attachments/assets/ba4e97b8-e14a-40dd-8d44-1719e865dff1" />
+
