@@ -8,7 +8,10 @@
 
 > # $\color{#83B5F7}{\textsf{Itrapped .}}$
 > ### $\color{#83B5F7}{\textsf{ONLY He / Him, you WILL be blocked .}}$
- 
+
+> ### $\color{#83B5F7}{\textsf{Since i sound "dry", i am also EXTREMELY easy to irritate. The smallest thing you do can and will annoy me GREATLY.}}$
+
+> ### $\color{#83B5F7}{\textsf{Mentioning sources, dont. dont even get me started on forsaken, OTHERS might like it but mentioning it will make me block you too.}}$
 
 
 # <img width="1280" height="460" alt="tumblr_a5898ea653877fc11bfb1aaed674acf6_17d195c5_1280" src="https://github.com/user-attachments/assets/72e84ce9-ddab-43bb-b8b9-13710a861f48" />
