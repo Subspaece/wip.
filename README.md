@@ -1,4 +1,5 @@
-# <img width="1280" height="422" alt="tumblr_62fccd1de9ef610e5ec4b517d089736e_5da59c55_1280" src="https://github.com/user-attachments/assets/a9289ec4-71a3-42d1-85e6-9d2db6f18a95" />
+<img width="640" height="360" alt="tumblr_a0bf63a30c1d2061c0a32d6d60b34366_43b233a9_640" src="https://github.com/user-attachments/assets/cd307b9b-5ca4-4c16-bb25-c69b61ac110e" />
+
 
 
 > # $\color{#83B5F7}{\textsf{Wip guys, i got lazy : ( }}$
