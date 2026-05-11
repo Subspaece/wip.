@@ -17,8 +17,8 @@ $\color{#83B5F7}{\textsf{fantasy, and other forms of fiction."}}$
 
 > ### $\color{#83B5F7}{\textsf{Since i sound "dry", i am also EXTREMELY easy to irritate. The smallest thing you do can and will annoy me GREATLY.}}$
 
-> ## $\color{#83B5F7}{\textsf{Mentioning sources, dont. dont even get me started on forsaken, OTHERS might like it but mentioning}}$
-> ## $\color{#83B5F7}{\textsf{it, i will block you too. Although, i dont mind TPC.}}$
+> ## $\color{#83B5F7}{\textsf{Mentioning sources, dont. dont even get me started on forsaken.}}$
+> ## $\color{#83B5F7}{\textsf{it, i will block you. Doubles + F*rsaken fictives iwec, blocking all Roleplayers.}}$
 
 > ### $\color{#83B5F7}{\textsf{Doubles : ONLY. FRIENDS.}}$
 
