@@ -6,20 +6,20 @@
 </p>
 
 
-<sup> $\color{#83B5F7}{\textsf{Clearing this up first, What is a Fictive alter, According to "HealthyPlace.com"}}$
-$\color{#83B5F7}{\textsf{"Introjects are alters that are based off outside people or characters. Fictional introjects specifically are based off of fictional characters. These characters can be from television shows, movies, books,}}$
-$\color{#83B5F7}{\textsf{fantasy, and other forms of fiction."}}$
-
 
 
 > # $\color{#83B5F7}{\textsf{Itrapped . Fictive}}$
-> # $\color{#83B5F7}{\textsf{ONLY He / Him, you WILL be blocked .}}$
+> # $\color{#83B5F7}{\textsf{ONLY He / Him, you WILL be blocked.}}$
 
-> ### $\color{#83B5F7}{\textsf{Since i sound "dry", i am also EXTREMELY easy to irritate. The smallest thing you do can and will annoy me GREATLY.}}$
+> ### $\color{#83B5F7}{\textsf{Since im "dry" in messages, i am also EXTREMELY easy to irritate. I can and WILL get irratated at the smallest things.}}$
 
 > ## $\color{#83B5F7}{\textsf{Mentioning sources, dont. dont even get me started on forsaken.}}$
-> ## $\color{#83B5F7}{\textsf{it, i will block you. Doubles + F*rsaken fictives iwec, blocking all Roleplayers.}}$
+> ## $\color{#83B5F7}{\textsf{mention it, i will block you. Doubles + F*rsaken fictives iwvec, blocking all Roleplayers. Close ppl ARE okay though.}}$
 
-> ### $\color{#83B5F7}{\textsf{Doubles : ONLY. FRIENDS.}}$
+> ### $\color{#83B5F7}{\textsf{Doubles : Friends only + People on the following lists.}}$
 
 # <img width="1280" height="460" alt="tumblr_a5898ea653877fc11bfb1aaed674acf6_17d195c5_1280" src="https://github.com/user-attachments/assets/72e84ce9-ddab-43bb-b8b9-13710a861f48" />
+
+
+
+## $\color{#83B5F7}{\textsf{Work in progress for now, Exams are coming.}}$
